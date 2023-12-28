@@ -54,7 +54,7 @@
 
 <b>𝑇𝑜 𝑘𝑛𝑜𝑤 𝑎𝑏𝑜𝑢𝑡 𝑎𝑙𝑙 𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠, 𝐽𝑜𝑖𝑛 𝑜𝑢𝑟 <a href='https://t.me/captan_support'>𝑢𝑝𝑑𝑎𝑡𝑒𝑠 𝑐ℎ𝑎𝑛𝑛𝑒𝑙</a>.</b>
 
-<a href='https://t.me/Luffy_000bot'>🅳︎🅴︎🅼︎🅾︎ 🅱︎🅾︎🆃︎</a>
+<a href='https://t.me/Boss_0_0bot'>🅳︎🅴︎🅼︎🅾︎ 🅱︎🅾︎🆃︎</a>
 
 ## 𝐶𝑜𝑚𝑚𝑎𝑛𝑑𝑠
 ```
